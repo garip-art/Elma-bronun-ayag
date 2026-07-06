@@ -1,1 +1,0 @@
-bu site şaka amaçlıdır
